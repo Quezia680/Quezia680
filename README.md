@@ -8,4 +8,4 @@ Meu nome é Kimya.
 
   queziaasilvaa5@gmail.com
 
-  ! [](https://tenor.com/pt-BR/view/zohakuten-kimetsu-no-yaiba-demon-slayer-hantengu-upper-moon-4-gif-4741621202897059505)
+  ![](https://tenor.com/pt-BR/view/zohakuten-kimetsu-no-yaiba-demon-slayer-hantengu-upper-moon-4-gif-4741621202897059505)
